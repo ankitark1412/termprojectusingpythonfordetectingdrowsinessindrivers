@@ -1,4 +1,4 @@
-                                                                      User manual
+                                                          User manual
 Code
 Available at the following Google drive link -
 https://drive.google.com/drive/folders/1k4AnHUjps8oRYKfwT7htuyfKUx9L_4ex?usp=sh
